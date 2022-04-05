@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DaRealRomz
-- 👀 I’m interested in you, since you're interrested in me.
+- 👀 I’m interested in you, since you're interrested in me. 👉👈
 
 <!---
 DaRealRomz/DaRealRomz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
